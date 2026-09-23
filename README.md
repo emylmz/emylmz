@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-**emylmz/emylmz**
+**EMRAH YILMAZ/emylmz**
 
 Here are some ideas to get you started:
 
